@@ -1,5 +1,4 @@
 <p align="center">
-<img src="https://imgur.com/TMLUNW2"width="400px">
 <br><br><b>✴ dave</b> <img src="https://imgur.com/FyvOG57" height="18px"> (<a href="https://en.pronouns.page/@GUNSLINGERZ">✮</a>) <img src="https://imgur.com/a/Ef1DvcQ" height="18px"> he/other </a><br><br>
   <img src="https://imgur.com/a/4DxHM1Y" width="700px">
   <br><br><b>i go off tab a lot or afk dont be scared to whisper me </b>
